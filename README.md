@@ -35,10 +35,11 @@ Please visit: http://www.samxuhome.com
 - Hardworking and time management
 - Can work individuall or in a team
 - Reliable and Organized
+- Learn new things quickly
+- Very good at both English and Chinese
 
 # Contact Me
 
 - Email: sam19861219@hotmail.com
 - Web portfolio: www.samxuhome.com
-- learn new things quickly
-- Very good at both English and Chinese
+
